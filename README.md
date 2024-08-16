@@ -1,1 +1,1 @@
-# dekopinda-pekalongan
+# dekopinda-karanganyar
